@@ -1,0 +1,2 @@
+# OL_TrapGiggle.Lua
+CAPTURE THAT ASS
